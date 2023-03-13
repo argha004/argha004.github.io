@@ -1,2 +1,2 @@
-# argha004.github.io
+# Arghadwip Paul
 My personal page (to be updated)
